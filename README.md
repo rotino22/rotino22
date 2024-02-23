@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @rotino22
 - 👀 I’m interested in creation and developement of exciting web pages.
-- 🌱 I’m currently learning 
 - 💞️ What are you working on? Let's have a conversation
 - 📫 How to reach me : whatsApp 0741850489
   
